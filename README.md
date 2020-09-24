@@ -1,1 +1,0 @@
-# teshniz.github.io
